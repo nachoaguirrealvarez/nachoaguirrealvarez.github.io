@@ -15,6 +15,7 @@ Consejero y socio en **ESPIC Andorra**.
 Cofundador y ex-CEO de **Avatel Telecom**.
 
 Web oficial: https://nachoaguirre.com
+
 Curchbase: https://www.crunchbase.com/person/jos%C3%A9-ignacio-aguirre-alvarez
 LinkedIn: https://www.linkedin.com/in/ignacio-aguirre-alvarez-95614928  
 X / Twitter: https://x.com/nachoaguirreok  
