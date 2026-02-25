@@ -29,6 +29,7 @@ Medium: https://medium.com/@nachoaguirrealvarez
 Wellfound: https://wellfound.com/u/jose-ignacio-aguirre-alvarez
 
 About.me: https://about.me/joseignacioaguirre
+
 Facebook: https://www.facebook.com/nachoaguirreok
 
 
