@@ -16,13 +16,18 @@ Cofundador y ex-CEO de **Avatel Telecom**.
 
 Web oficial: https://nachoaguirre.com
 
+Web VANTIA Capital (BIO): https://vantiacapital.com/nacho-aguirre/
+Wikidata (ID de entidad): https://www.wikidata.org/wiki/Q136825412
 Curchbase: https://www.crunchbase.com/person/jos%C3%A9-ignacio-aguirre-alvarez  
 LinkedIn: https://www.linkedin.com/in/ignacio-aguirre-alvarez-95614928  
 X / Twitter: https://x.com/nachoaguirreok  
 Instagram: https://www.instagram.com/nachoaguirre.ok  
 YouTube: https://www.youtube.com/@nachoaguirreok  
 Medium: https://medium.com/@nachoaguirrealvarez  
-Wikidata: https://www.wikidata.org/wiki/Q136825412  
+Wellfound: https://wellfound.com/u/jose-ignacio-aguirre-alvarez
+About.me: https://about.me/joseignacioaguirre
+Facebook: https://www.facebook.com/nachoaguirreok
+
 
 ---
 
